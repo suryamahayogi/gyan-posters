@@ -2,10 +2,10 @@ DIVINE GYAN POSTERS - Bhagavad Gita, Vedic Mantra & Sadhana Wisdom by Surya Maha
 
 _________________________________________________________________________________________
 
-whatsapp: +91 8126914149, e_mail: suryamahayogi@gmail.com, mastg017@gmail.com
-you tube: @suryamahayogi9285, x/twitter: @suryamahayogiji, @mahayogisu92531    
-web:www.github.com/suryamahayogi/gyan-posters, www.suryamahayogi.blogspot.com
-______________________________________________________________________________
+whatsapp: +91 8126914149, e_mail: suryamahayogi@gmail.com,   mastg017@gmail.com
+you tube: @suryamahayogi9285,   x/twitter: @suryamahayogiji,   @mahayogisu92531    
+web:www.github.com/suryamahayogi/gyan-posters,   www.suryamahayogi.blogspot.com
+________________________________________________________________________________
 
 
 
@@ -58,10 +58,12 @@ Band ankhon se dekho  SUN ko tab tak, jab tak ki competent tatwagya tatwadarshi 
 (गीता 4/1 की सूर्य-परम्परा से प्रेरित — सूर्योपासना, आत्मबोध और सात्त्विक तृतीय नेत्र जागरण का आध्यात्मिक प्रयास)
 
 
-_________________________________________________________________________________________
+________________________________________________________________________________
 
-whatsapp: +91 8126914149, e_mail: suryamahayogi@gmail.com, mastg017@gmail.com
-you tube: @suryamahayogi9285, x/twitter: @suryamahayogiji, @mahayogisu92531    
-web:www.github.com/suryamahayogi/gyan-posters, www.suryamahayogi.blogspot.com
+whatsapp: +91 8126914149, e_mail: suryamahayogi@gmail.com,   mastg017@gmail.com
+you tube: @suryamahayogi9285, x/twitter: @suryamahayogiji,   @mahayogisu92531    
+web: www.github.com/suryamahayogi/gyan-posters,   www.suryamahayogi.blogspot.com
+________________________________________________________________________________
+
 ________________________________________________________________________________________
 
