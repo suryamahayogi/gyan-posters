@@ -1,5 +1,13 @@
 DIVINE GYAN POSTERS - Bhagavad Gita, Vedic Mantra & Sadhana Wisdom by Surya Mahayogi Ji #
+
 _________________________________________________________________________________________
+
+whatsapp: +91 8126914149, e_mail: suryamahayogi@gmail.com, mastg017@gmail.com
+you tube: @suryamahayogi9285, x/twitter: @suryamahayogiji, @mahayogisu92531    
+web:www.github.com/suryamahayogi/gyan-posters, www.suryamahayogi.blogspot.com
+______________________________________________________________________________
+
+
 
 SURYAMAHAYOGI JI is only human in universe who is gazing NOON SUN for hours wef7.11.1999 through his open naked eyes in sahaj bhav easy going way, it is satwik third eye through which he can gaze noon sun, it is also GITA gist which lord KRISHNA imparted to SUN (GITA 4/1), Sun imparted to his disciple HANUMAN JI, later on two vultures named Jatau & Sampati tried to get this GITA tatwa knowledge from SUN, but failed. Jatau returned while Sampati lost his feathers (actually his eyes were burnt, in case of birds their feathers are equivalent to eyes). Now in last 216 crores of years of existence of earth many dev, gaint, men among 84 lakhs creatures tried to get GITA gist knowledge from SUN, but all failed. only Suryamahayogi Ji succeeded. 
 in this attempt by grace of his guru dharm samrat karpatri ji maharaj. so if anybody wishes to get actual gita gist practical then he/she may go to any of 4 viz lord Krishna, Sun, Hanumanji,Suryamahayogi Ji. We can not meet first three personalities whereas fourth one i.e. Suryamahayogi Ji is easily available on his whatsapp +91 8126914149 in India
@@ -48,3 +56,12 @@ Band ankhon se dekho  SUN ko tab tak, jab tak ki competent tatwagya tatwadarshi 
 सूर्यमहायोगी जी — गीता के परम तत्त्वज्ञान, सूर्योपासना, आत्मबोध एवं सात्त्विक तृतीय नेत्र-जागरण की आध्यात्मिक साधना का परिचय। श्रीमद्भगवद्गीता 4/1 में वर्णित सूर्य को प्रदत्त सनातन योग-ज्ञान की परम्परा से प्रेरित यह प्रयास ज्ञान, विवेक, सद्बुद्धि और आत्मजागरण का संदेश प्रस्तुत करता है।
 ----------------------------------
 (गीता 4/1 की सूर्य-परम्परा से प्रेरित — सूर्योपासना, आत्मबोध और सात्त्विक तृतीय नेत्र जागरण का आध्यात्मिक प्रयास)
+
+
+_________________________________________________________________________________________
+
+whatsapp: +91 8126914149, e_mail: suryamahayogi@gmail.com, mastg017@gmail.com
+you tube: @suryamahayogi9285, x/twitter: @suryamahayogiji, @mahayogisu92531    
+web:www.github.com/suryamahayogi/gyan-posters, www.suryamahayogi.blogspot.com
+________________________________________________________________________________________
+
