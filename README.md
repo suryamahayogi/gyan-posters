@@ -5,8 +5,6 @@ ________________________________________________________________________________
 whatsapp:+91 8126914149, e_mail: suryamahayogi@gmail.com, mastg017@gmail.com,
 you tube: @suryamahayogi9285, x/twitter: @suryamahayogiji,  @mahayogisu92531,    
 web:  www.github.com/suryamahayogi/gyan-posters,  www.suryamahayogi.blogspot.com
-_________________________________________________________________________________
-
 
 
 SURYAMAHAYOGI JI is only human in universe who is gazing NOON SUN for hours wef7.11.1999 through his open naked eyes in sahaj bhav easy going way, it is satwik third eye through which he can gaze noon sun, it is also GITA gist which lord KRISHNA imparted to SUN (GITA 4/1), Sun imparted to his disciple HANUMAN JI, later on two vultures named Jatau & Sampati tried to get this GITA tatwa knowledge from SUN, but failed. Jatau returned while Sampati lost his feathers (actually his eyes were burnt, in case of birds their feathers are equivalent to eyes). Now in last 216 crores of years of existence of earth many dev, gaint, men among 84 lakhs creatures tried to get GITA gist knowledge from SUN, but all failed. only Suryamahayogi Ji succeeded. 
